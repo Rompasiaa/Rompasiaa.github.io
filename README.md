@@ -1,13 +1,15 @@
-                                                        *Why you should be a PMA Cadet* 
+                                                         Why you should be a PMA Cadet
 
-    ![PMA](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7f/Philippine_Military_Academy_%28PMA%29.svg/150px-Philippine_Military_Academy_%28PMA%29.svg.png)
+  
+  ![PMA](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7f/Philippine_Military_Academy_%28PMA%29.svg/150px-Philippine_Military_Academy_%28PMA%29.svg.png)
+
 ____                                                      
                                                         
    _Motto: "Courage, Integrity, Loyalty"_                                               
 
 
 Brief History:
-The Philippine Military Academy(PMA) is the premier military academy for Filipinos aspiring for a commission as a military officer of the Armed Forces of the Philippines (AFP).It was established on December 21, 1936, by the virtue of National Defense Act of 1935. It is patterned after the United States Military Academy, in West Point, New York.The academy is located in the city of Baguio, and serves as the primary training school for future officers of the AFP.
+The Philippine Military Academy (PMA) is the premier military academy for Filipinos aspiring for a commission as a military officer of the Armed Forces of the Philippines (AFP).It was established on December 21, 1936, by the virtue of National Defense Act of 1935. It is patterned after the United States Military Academy, in West Point, New York.The academy is located in the city of Baguio, and serves as the primary training school for future officers of the AFP.
 
 The academy traces its roots to 1898, when Emilio Aguinaldo decreed the establishment of the Academia Militar in the Philippines. The present academy serves as a national historical landmark for historic contribution and its “long and unending line of quality military education.” The campus is a popular tourist destination in Baguio.
 
